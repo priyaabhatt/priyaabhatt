@@ -2,8 +2,6 @@
  
 Designer who codes. Engineer who designs.
  
-Designing and coding fresh looking platforms.
- 
 I work end to end: Figma, Framer, Jitter and vibe coding with React (still learning the language to code more effeciently). I like shipping.
  
 ### Currently
