@@ -8,4 +8,4 @@ On the side I built **Ampr**, which tracks your day-to-day freelance work and bu
 
 Off screen: photography at [@safarnama.jpg](https://www.instagram.com/safarnama.jpg/), a new Lego set every 6 months, and a 2+ month chess streak.
 
-[priyabhatt.in](https://priyabhatt.in) · [hello@priyabhatt.in](mailto:hello@priyabhatt.in) · [LinkedIn](https://www.linkedin.com/in/priyaabhatt/) · [X](https://x.com/priyabhatttt)
+[priyabhatt.in](https://priyabhatt.in) · [hello@priyabhatt.in](mailto:hello@priyabhatt.in) 
