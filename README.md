@@ -1,6 +1,6 @@
-# Priya Bhatt
+🌸
 
-Hey, 
+Hey, I' Priya Bhatt
 
 I’m a product designer, current building cool stuff at Trelium
 
